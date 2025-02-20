@@ -7,5 +7,5 @@
 - 💬 Ask me about sport
 - 📫 How to reach me: send me a message
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: look up alexidade's profil for interesting information about snales
+- ⚡ Fun fact: look up alexiadade's profil for interesting information about snales
 
